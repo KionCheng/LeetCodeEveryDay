@@ -1,5 +1,5 @@
 # Leeeeeeeeeeeeeeeeeeeeeeeet
-# Cooooooooooooooooooooooode
+# Coooooooooooooooooooode
 # EEEEEEEEEEEEEEEEEEEEEEvery
 # Daaaaaaaaaaaaaaaaaaaaaaaay
 
